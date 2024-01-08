@@ -18,4 +18,6 @@
    2. Do 10 pullups
    3. Bench 100kg 
 8. Clean up digital files
-   1. Get down to 2 x 8tb harddrive
+   1. Get down to 3 x 8tb harddrive
+   2. Clean 2022 and 2023 Icloud files.
+      1. Strategy. In January 2024, clean up files from January 2021, 2022, 2023. Repeat for other months.
