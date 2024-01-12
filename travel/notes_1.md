@@ -1,0 +1,127 @@
+Nagoya 8 things
+    2-3 weekend trips
+Kanto 3-5 days total 
+    3 Chiba
+        3 days 
+    1 tokyo 
+        1 day 
+    1 kamakura 
+        1 day 
+    0-1 Hakone 
+        0-1 days 
+
+
+Takatsuki Station Illuminations
+
+
+https://en.japantravel.com/kagawa/winter-fantasy-in-mannou-park/25302
+https://en.japantravel.com/fukuoka/oniyo-fire-festival/70438
+https://en.japantravel.com/fukuoka/kurume-light-festival/69427
+Kurokawa Onsen Yu Akari Illumination
+
+    January 6-8 
+
+    January 13-14 
+        Tokyo Auto Salon 
+    January 19-28 
+        Kobe Luminarie
+    
+    Feburary 12 
+    Feb 23 
+
+
+
+
+
+Beppu 2 days 
+
+
+
+78 days-91 days 
+
+Kyushuu 12 days 
+    Kumamoto 3 days 
+        Amakusa 2 days - no season
+        Mount Aso 1-2 days
+            Kurokawa Onsen Yu Akari Illimuniation: https://en.japantravel.com/kumamoto/kurokawa-onsen-yu-akari-illumination/68410
+            mid March - Aso Fire Festival https://en.japantravel.com/kumamoto/aso-fire-festival/33246
+    Oita 4 days - No Season
+        Oita 2 days
+        Beppu 2-3 days 
+            July - Beppu Fireworks
+    Yakushima 2-3 days  - No Season 
+    Fukuoka 3 days - No Season
+        Kitakyushu 1 day
+        Cat Island 1 day 
+        Tsunoshima 1 day 
+Kinki 11-14 days 
+    Yamaguchi 1-2 days
+        August https://en.japantravel.com/yamaguchi/yanai-goldfish-lantern-festival/69136
+    Shimane 5 days days - Fall 
+        Izumo 1-2 days - November https://japancheapo.com/events/izumo-taisha-kamiari-festival/
+        Matsue 2 days - October https://en.japantravel.com/shimane/matsue-water-light-road/69274 
+    Hiroshima 1 day - Fukuyama - may (https://www.fukuyama-kanko.com/inbound/event/)
+    Naoshima 2 days - no season
+    Tottori 3 days - No Season 
+Kansai 15-18 days
+    Hyogo 2 days 
+        Himeji 1 day - No Season
+        Takeda Castle 1 day - Sakura 
+    North Kyoto 3-4 days 
+        Miyazu/Ine/Miyama - 2 days
+        Kinosaki Onsen 1-2 days
+    Osaka 1 day  - Takarazuka Show (https://kageki.hankyu.co.jp/english/index.html )
+    Wakayama 4 days 
+    Nagoya 3-4 days - No Season 
+        Nabana No Sato - Now to June 
+        Now to April https://en.japantravel.com/aichi/atsumi-peninsula-nanohana-festival/68444
+    Fukui 2 days - Winter or Summer 
+    Kanazawa 1-2 days - Winter - https://visitkanazawa.jp/en/event/index.html
+Kanto 8-12 days 
+    Chiba 3 days 
+    Kamakura 0-1 summer 
+    Tokyo 0-1 
+    Shimane/Shizuoka 0-2 days 
+    Nagano 2 days 
+    Toyama 1 
+    Gunma 2 days 
+Okinawa 5 
+Tohoku 7-11
+    Zao 3 
+    Matsushima 0-1
+    Tsurunoyo 1-2 
+    Hachinohe 1-2
+    Aomori 1-2 
+    Oma Peninsula 1
+Hokkaido 16-18 days 
+    Hakodate 2-4 days 
+    East Hokkaido 3 days 
+    Okhotsk 2-3 days
+    Middle Hokkaido 3
+    Sapporo 3-5 days 
+    Otaru 1
+    Noboribetsu 2 days  
+Shikoku
+    Kochi 3 
+    Ehime 4
+    Tokushima 2 
+
+Top Events
+    Tokyo Auto Show January 12-14 
+    Nozawa Onsen Fire Festival January 15th
+    Kobe Luminaire January 19-28
+    Kayabuki no Sato Snow Lantern Festival Jan 27-Feb 3 
+
+
+
+January 6-8 
+    Maebaeshi Maebashi Hatsuichi Daruma Festival
+January 13-14
+    Tokyo Auto Show January 12-14 
+    Yuzawa/Gunma
+    Nozawa Onsen Fire Festival January 15th
+    Tokyo Sumo 
+January 20-21
+January 27-28
+
+
