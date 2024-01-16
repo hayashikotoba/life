@@ -125,14 +125,46 @@ January 20-21
 January 27-28
 
 
+Total: (80-110 days)
 
-
-- Hokkaido:
-- Okinawa:
-- Shikoku
-- Tohoku
-- Kansai
-- Kanto
+- Hokkaido (10 days)
+- Okinawa (3-7 days) 
+- Shikoku (10-12 days)
+  - Kagawa (2 day)
+  - Kochi (7 day)
+  - Tokushima (1-2 day)  
+- Tohoku (9-11 day)
+  - Zao (2 day)
+  - Fukushima (1 day)
+  - Sendai (0-1 day)
+  - Niigata (0-2 day)
+  - Akita (0-2 day)
+  - Tsurunoyu (1 day)
+  - Aomori (2 day)
+  - Hachinohe (2 day)
+  - Morioka (1 day) 
+- Kanto (8-14)
+  - Nagano (2-3 day)
+  - Shizuoka (1-2 day)
+  - Izu Peninsula (0-1 day)
+  - Chiba (3-4 day)
+  - Tokyo (0-1 day)
+  - Saitama (1 day)
+  - Gunma (1-2 day)
+- Kansai (16-18 days)
+  - Osaka (1 day)
+    - Takarazuka Revue
+  - Kyoto (2 day)
+    - Kyoto By the sea
+  - Wakayama (3-4 day)
+  - Nagoya (3-4 day)
+  - Karuizawa (2 day)
+  - Kanazawa (1 day)
+  - Toyama (2 day)
+    - Noto Peninsula (1 day)
+    - Tatayema (1 day)
+  - Gifu (2-3 day)
+    - Kamikochi  
 - Chugoku (13-18 days)
   - Yamaguchi (1-2 day)
       - Akiyoshido Cave
