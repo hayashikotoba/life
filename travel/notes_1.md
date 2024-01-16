@@ -125,3 +125,67 @@ January 20-21
 January 27-28
 
 
+
+
+- Hokkaido:
+- Okinawa:
+- Shikoku
+- Tohoku
+- Kansai
+- Kanto
+- Chugoku (13-18 days)
+  - Yamaguchi (1-2 day)
+      - Akiyoshido Cave
+      - Hagi Castle Town
+  - Shimane (4-6 day)
+      - Aquarium Aquas (1 day)
+      - Nima Sand Museum (1 day)
+      - Iwami Silver Mine (0-1 day)
+      - Izumo Peninsula (1 day)
+      - Izumo Shrine (1 day)
+      - Matsue City (1-2 day)
+  - Hiroshima (1 day)
+    - Setonaikai / Sensui Cat Island (1 day)
+  - Okayama (2-3 day)
+      - Washuzan Highland (1 day)
+      - Naoshima (1-2 day)
+  - Tottori (2-3 day)
+      - Crab Museum
+      - Island COast Cruise
+      - Gosho Aoyama Manga Factory
+      - Pear Museum
+  - Hyogo (3-4 day)
+      - Himeji Taiyo Park (1 day)
+      - Takeda Castle (1 day)
+      - Kinosaki (1-2 day)
+        - Genbudo Geology Museum
+        - Kinosaki Aquarium 
+- Kyushu (11-20 days)
+  - Fukuoka prefecture (3 day)
+    - Kitakyushu (1 day)
+      - Senbutsu Cave
+    - Hakata (1 day)
+      - Ainoshima Cat Island 
+    - North West Yamaguchi (1 day)
+      - Tsunoshima Bridge
+      - Motonosumi Inari Shrine
+  - Saga prefecture
+  - Nagasaki prefecture (0-1 day)
+    - Nagaaki Lantern Festival
+  - Kumamoto prefecture (2-4 day)
+    - Amakusa Church Tour (1-2 day)
+    - Mount Aso (1-2 day)
+  - Oita prefecture (3-5 days)
+    - Beppu (3-5 days)
+      - Rakutenchi (1 day)
+      - Kijima Kogen (1 day)
+      - Safari (1 day)
+      - Nabeyama Outdoor Free Onsen (0-1 day)
+      - Usa Jingu (0-1 day)
+  - Miyazaki prefecture (1-2 day)
+      - Laputan Robot 
+  - Kagoshima prefecture (2-5 days)
+      - Yakushima (1-2 day)
+      - Tanegashima Japan Rocket Launch (1-2 day)
+      - Kirishima Shrine (0-1 day) 
+
