@@ -12,6 +12,21 @@ Planned
     - January 15:
       - Takasaki Daruma Matsuri 
       - Kiyotsu Valley Panorama Station
+- January 20-21
+  - January 19: Nagoya
+    - Higashiyama Tower
+    - Kiyosu Castle
+  - January 20: Nakano
+    - Snow Monkey Park
+    - Shibu Onsen
+  - January 21: Nakano
+    - Nakano Pudding
+    - Nakano Kannon
+    - Obuse Hokusai Museum
+    - Nagano Mizuno Museum
+    - Nagano Onsen
+      
+    
    
 Events:
 ==============
@@ -19,7 +34,7 @@ Events:
       https://en.japantravel.com/saitama/icicles-of-misotsuchi-in-chichibu/1008
       http://icicles.woodroof.jp/en/guide/
 - Kobe Luminaire (Jan 19-28)
-- Noazawa Onsen Fire Festival (January 15, monday)
+
 - Kyoto
   - Kyoto Candlelight Concert: Best of Joe Hisaishi (Studio Ghibli)  Joe HIsaishi (Jan 19, Feb 1)
   - Kyoto Snow Lantenr (Jan 27 Feb 3)
