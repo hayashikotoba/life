@@ -8,4 +8,13 @@ January 18th
   - You look like a pig. Ni Can QI Lai Xiang Qu 
   - Your selfie stick is annoying AF. Ni Do Qi Pai Ban Qiao Fan 
   - Bread - Bao
+  - Wo men qu lo' Xin Jiang tsai 
+  - Wo men qu lo' Ru'Ban
+  - Wo men qu lo' Yuen Nan Ban
+  - Wo men qu lo' rishi 
+  - Wo men qu lo' chong guo ban
+  - Wo men qu lo' Mei Guo
+  - Wo men qu lo' Mei Guo riao ri
+  - Wo men qu lo mei guo riao ri
+  - I don't want talk to you Wo Bu Shiang Gu Ni Shu Hoa
   - 
